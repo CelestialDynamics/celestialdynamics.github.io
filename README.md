@@ -1,1 +1,2 @@
-# celestialdynamics.github.io
+# Celestial Dynamics
+Supercharging Innovation
