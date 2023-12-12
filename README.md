@@ -1,2 +1,3 @@
 # Celestial Dynamics
-Supercharging Innovation
+Supercharging creative innovation!
+More informations coming soon, watch this space!
